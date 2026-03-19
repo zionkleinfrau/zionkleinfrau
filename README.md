@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hallo 👋
 
 Hold me (Hold me)
 Kiss me (Kiss me)
